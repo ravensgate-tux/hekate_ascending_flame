@@ -62,3 +62,7 @@ Detonosis.（デトノーシス）
 
 📌 _この儀式は静かに行うことも、チャントを心臓の鼓動のように繰り返して行っても構いません。魔術とは、ゆっくりと選び、確かに進むこと。_
 
+---
+
+© 2025 知られざる呪術師（Le Sorcier Inconnu）  
+本ドキュメントは [Creative Commons BY-SA 4.0](https://creativecommons.org/licenses/by-sa/4.0/deed.ja) に基づき公開されています。
