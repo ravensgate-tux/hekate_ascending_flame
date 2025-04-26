@@ -2,7 +2,7 @@
 
 この儀式は「Three Faces of Hecate」（Temple of Ascending Flame, 2014）に着想を得て、  
 Ravensgateの哲学と実践に沿って血や動物トーテムを使わずに再構成されたものです。  
-**ブラックミラー、チャント、内的可視化、そしてDetonosis（不可逆の意志決定）**を中心に据えています。
+ブラックミラー、チャント、内的可視化、そしてDetonosis（不可逆の意志決定）を中心に据えています。
 
 <img src="blackmirror.jpg" width="300">
 
